@@ -1,4 +1,4 @@
-
+no-ban Scripts for plants vs brainrots offers the most advanced plants vs brainrots Script, with undetectable and silent aim. Perfect for dominating
 
 
 
